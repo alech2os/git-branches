@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Stadiums that are full
 - Raindrops on roses
-- Whiskers on kittens
+- Whiskers on puppies
 - Bright copper kettles
 - Warm woolen mittens
 - Steaks that are grilled
